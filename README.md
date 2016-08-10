@@ -1,1 +1,2 @@
-Begin Our CS Study !
+Begin Our CS Study !!
+Checking out gitgutter
