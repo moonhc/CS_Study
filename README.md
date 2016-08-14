@@ -6,4 +6,4 @@ If interested, join free with us.
 
 ------
 
-###First meeting will begin soon!
+###First meeting will begin today!
